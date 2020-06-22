@@ -4,4 +4,9 @@ Sammy, das Hauskätzchen, verlässt das kuschelige Heim seiner Zweibeiner, um si
 Später wird er Anführer des Donnerclans
 
 
+## Charakter
+* Kater
+* rot
+* früher Hauskätzchen
+* befreundet mit Graustreif
 
