@@ -10,3 +10,5 @@ Später wird er Anführer des Donnerclans
 * früher Hauskätzchen
 * befreundet mit Graustreif
 
+Feuerstern sagte:
+> Er wäre ein großartiger Krieger geworden.
